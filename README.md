@@ -2,9 +2,9 @@
 Hi, I'm Fanindra Maharana, an Interaction Design student at JKLU, Jaipur.
 
 
-#### See my work at - https://fanindra.xyz
+#### See my work at https://fanindra.xyz
 
-#### Personal Blog - https://blog.fanindra.xyz/
+#### More Design Explorations at https://designs.fanindra.xyz/
 
 ### 🌐 Socials:
 
