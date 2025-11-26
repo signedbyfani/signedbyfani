@@ -1,8 +1,8 @@
 ### 💫 About Me:
-Hi, I'm Fanindra Maharana, an Interaction Design student at JKLU, Jaipur.
+Hi, I'm Fanindra Maharana, an Interaction Design.
 
 
-#### See my work at [fanii.lol/](https://www.fanii.lol/)
+#### See my work at [fanindra.me](https://fanindra.me/)
 
 ### 🌐 Socials:
 
